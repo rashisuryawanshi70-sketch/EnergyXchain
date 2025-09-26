@@ -101,3 +101,6 @@ Join the energy revolution with energyXchain - Where renewable energy meets bloc
 contact address -
 0x225191Ae5aE0aB184739703992805cd9BF2504F6
 
+<img width="1260" height="638" alt="image" src="https://github.com/user-attachments/assets/b2c62719-82ba-47c9-b45d-d258f6a148c9" />
+
+
